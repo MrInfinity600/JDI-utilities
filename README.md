@@ -8,7 +8,7 @@ From residential homes to commercial buildings, we provide expert plumbing servi
 
 Why Choose JD&I Utilities?
 
-Skilled and licensed plumbing experts
+Skilledcplumbing experts
 
 Fast, friendly, and professional service
 
